@@ -1,1 +1,1 @@
-# a part of beta-block project
+# daily for fun
